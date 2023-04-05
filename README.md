@@ -1,6 +1,6 @@
 ### Hello, Hello! 🌿
 
-==Science is good==
+
 - 🎓 Freshly graduated in Life Science from Karolinska Institutet, Stockholm University and KTH!
 - 🧬 Currently looking for an exciting job within Bioinformatics, Genomics, Genetics, Microbiology
 - 👯 Passionate about Science, Human biology, Microbiology and Teaching!
