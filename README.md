@@ -1,4 +1,4 @@
-### Hello, Hello! 🌿
+### Bonjour! 🌿
 
 
 - 🎓 Freshly graduated in Life Science from Karolinska Institutet, Stockholm University and KTH!
